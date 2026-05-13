@@ -1,4 +1,4 @@
-#  
+#  ultimate one tap Scripts offers the most advanced one tap Script, with auto-collect and speed. Perfect for dominating any match.
 
 
 
